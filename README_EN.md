@@ -66,4 +66,6 @@ BitAgent is designed for professional investors and institutions who pursue exce
 
 **Contact us to schedule an exclusive demo of BitAgent and experience the power of an AI trading team firsthand.**
 
+[https://x.com/jonny_quan](https://x.com/jonny_quan)
+
 **BitAgent. Intelligent Trading, Evolved.**
